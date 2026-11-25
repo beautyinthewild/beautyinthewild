@@ -14,7 +14,7 @@
 
 - 📩 How to reach me **Romina.Ramos@dpnr.vi.gov**
 
-- ⚽ Fun fact **I met Vozinha and the national Cape Verde soccer team during the FIFA World Cup 2026.**
+- ⚽ Fun fact **I met Vozinha and the national Cabo Verde soccer team during the FIFA World Cup 2026.**
 
 ## Links
 <p align="left">
