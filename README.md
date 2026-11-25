@@ -4,7 +4,7 @@
 
 I am currently a master's student in the Master of Marine and Environmental Science program at the University of the Virgin Islands.
 
-- 💡 I’m currently learning **about tools for measuring nighttime light pollution.**
+- 💡 I’m learning **about tools for measuring nighttime light pollution.**
 
 - 🌳 I’m looking to collaborate on **habitat restoration.**
 
