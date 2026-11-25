@@ -2,7 +2,7 @@
 **`Wildlife Biologist in St. Croix, USVI`** 
 
 
-- 🔭 I’m currently working on **my master's thesis research.**
+I am currently a master's student in the Master of Marine and Environmental Science program at the University of the Virgin Islands.
 
 - 💡 I’m currently learning **about tools for measuring nighttime light pollution.**
 
