@@ -12,7 +12,7 @@ I am currently a master's student in the Master of Marine and Environmental Scie
 
 - 🏝️ Ask me about **the US Virgin Islands.**
 
-- 📩 How to reach me **Romina.Ramos@dpnr.vi.gov**
+- 📩 How to reach me **rominramos@gmail.com**
 
 - ⚽ Fun fact **I met Vozinha and the national Cabo Verde soccer team during the FIFA World Cup 2026.**
 
