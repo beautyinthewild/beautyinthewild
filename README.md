@@ -4,13 +4,13 @@
 
 I am currently a master's student in the Master of Marine and Environmental Science program at the University of the Virgin Islands.
 
-- 💡 I’m learning **about tools for measuring nighttime light pollution.**
+- 💡 I’m measuring nighttime light pollution.**
 
 - 🌳 I’m looking to collaborate on **habitat restoration.**
 
 - 💻 I’m looking for help with **Github's tools.**
 
-- 🏝️ Ask me about **the US Virgin Islands. I am an Airbnb host.**
+- 🏝️ Ask me about **the US Virgin Islands.**
 
 - 📩 How to reach me **Romina.Ramos@dpnr.vi.gov**
 
